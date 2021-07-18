@@ -1,0 +1,1 @@
+# padroesprojeto-com_strat
